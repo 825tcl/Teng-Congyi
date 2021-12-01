@@ -5,8 +5,8 @@
 -->
 
 - 🔭 I’m currently a student.
-- 🌱 I’m currently learning Geophysics.
-- 👯 I’m looking to collaborate on funny people.
+- 🌱 I’m currently learning space physics.
 - 💬 Ask me about nothing.
-- ⚡ Fun fact: I wanna be a for-person.
+- ⚡ Fun fact: I wanna be...
+- 🔅 Not so happy these days but a little bit peaceful.
 
